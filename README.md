@@ -14,5 +14,5 @@ My approach is simple (but not too simple, we’re stepping it up):
 
 **Language Immersion**: I’m absorbing French. Podcasts, painfully awkward conversations with strangers, 60s lover music, you name it. If French doesn’t start living in my brain, I’ll force it in there.
 
-_Quick special thanks to my sweet, incredible, darling friends, who unknowingly motivated me to pursue this._
+_Quick special thanks to my sweet, incredible, darling friends, whose support and motivation unknowingly motivated me to embark on this journey._
 
